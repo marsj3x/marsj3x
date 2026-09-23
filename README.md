@@ -1,3 +1,1 @@
-## hi there, im steven 🤖.
-✍️ Contact
-- 📫 [Email](mailto:contact.davidteather@gmail.com)
+## hi there, im steven 🤖. Contact: 📫 [Email](mailto:contact.marsj3x@gmail.com)
