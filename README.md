@@ -1,2 +1,2 @@
 ## hi there, im steven 🤖. 
-📧 [email](marsj3x@gmail.com)
+📧 [email](mailto:marsj3x@gmail.com)
